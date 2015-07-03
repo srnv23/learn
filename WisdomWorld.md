@@ -1,0 +1,1 @@
+### wisdom is learning from past for intelligence from future
